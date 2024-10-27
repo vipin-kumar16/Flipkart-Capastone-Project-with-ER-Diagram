@@ -1,4 +1,5 @@
 https://docs.google.com/document/d/1xUh2QBA6xNVzebcFTZD-G5NvCw8jQBQwOBRDMs9IE_E/edit?usp=sharing
+For watching the video : https://drive.google.com/file/d/1P4OGMuGq9dEDPEl5OOBs14CqPUG5e86C/view?usp=sharing
 
 Company Overview:
 Flipkart Private Limited is an Indian e-commerce company, headquartered in Bangalore,
